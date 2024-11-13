@@ -6,4 +6,7 @@ efisien
 > vsvapwe_gnididid - [Dimas Andiyono](https://m.youtube.com/@DimasAndiyono) - 2024_08_26 - [Tutorial WA BLAST Anti Banned WhatsApp, Gratis Tanpa Aplikasi](https://youtu.be/KYOj8UBdRVQ) <img src="media/KYOj8UBdRVQ/Screenshot_2024-11-13-07-01-34-47.png">
 
 
+> vsvapwe - [Mission To The Loot](https://m.youtube.com/@OnAMissionToTheLoot) - 2023_05_06 - [How I Made A FACELESS Youtube Channel USING ONLY AI Tools! (GENIUS)](https://youtu.be/s7shTnvNndw) <img src="media/s7shTnvNndw/">
+
+
 > vsvapwe - [AI Genesis](https://m.youtube.com/@AI.Genesis) - 2023_09_20 - [I Made 700 Monetizable YouTube Shorts for Faceless Channel in 18 MINUTES using AI Automation](https://youtu.be/lqXWVzWkkyc) <img src="media/lqXWVzWkkyc/Screenshot_2024-11-13-07-15-49-67.png">
